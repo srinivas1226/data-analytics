@@ -1,2 +1,2 @@
 # data-analytics
-Beginner as a Data analytics
+Intern at Lagazon Edutech
